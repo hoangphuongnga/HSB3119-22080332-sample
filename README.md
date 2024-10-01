@@ -1,7 +1,6 @@
-宋国有一个农夫种着几亩地，他的地上有一棵大树。一天，他在地里干活，忽然看见一个兔子简一般的飞奔过来，猛的撞那棵大树上，一下子把脖子折断了，蹬蹬腿就死了。这个农夫飞快的跑过去，把兔子捡起来，高兴的说：
+![](image/20200001_2.jpg)
+Điểm đặc biệt của các sản phẩm pasta hay 4P's Original Mì Ý Kem Cà Chua với thịt Cua đều đến từ nguyên liệu "homemade". Từ nước sốt, pho mát đều do 4Ps tự phát triển. 4P's vượt xa những món mì hay pizza truyền thống trong lịch sử với sự đổi mới không ngừng, mang đến những hương vị "độc nhất vô nhị" không lẫn vào đâu được.
 
-“这真是一点劲没费，白捡了个大便宜，回去可以美美的吃上一顿了。”
+Bất cứ ai là tín đồ của món 4P's Original Mì Ý Kem Cà Chua với thịt Cua và pasta đều biết đến các loại phô mai tự làm của 4P. Các dòng phô mai này được 4Ps nghiên cứu và tìm hiểu và sản xuất riêng cho từng chiếc bánh pizza cũng như từng món mì. Vì vậy, khi cân nhắc và thưởng thức, thực khách dễ dàng nhận ra hương vị độc đáo của món mì ý thơm ngon này.
 
-他拎着兔子一边往家走，一边得意地想：“我的运气真好，没准明天还会有兔子跑来，我可以能放过这样的便宜。”
-
-第二天，他到地里也不干活，只守着那棵大树，等着兔子撞过来。结果，等了一天什么也没等到。他却不甘心，从此，天天坐在那棵大树下等着兔子来撞死。她等呀等呀，直等到地理的野草长得比庄稼都搞了，连个兔子影也没有再见到。
+Món Mì Ý Kem Cà Chua với thịt Cua của 4P không chỉ được tạo ra từ những nguyên liệu tự làm được lựa chọn kĩ lưỡng mà còn đến từ sự tìm tòi và học hỏi không ngừng về thương hiệu, đây là sự giao thoa giữa ẩm thực Á -  u tạo nên sự tương thích với nhiều khẩu vị từ đó tạo nên món 4P's Original Mì Ý Kem Cà Chua với thịt Cua ngon đúng vị người Việt.
